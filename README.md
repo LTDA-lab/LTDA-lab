@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+CONNECT WITH ME
+
+Discord: "ghy54"
+
+""Discord Server" (https://img.shields.io/badge/Discord-JOIN%20MY%20SERVER-5865F2?style=for-the-badge&logo=discord&logoColor=white)" (https://discord.gg/8v3NRGepuv)
